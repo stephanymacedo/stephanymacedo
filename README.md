@@ -1,6 +1,7 @@
 
 ![thumbnail_Stephany vila nova de macedo](https://user-images.githubusercontent.com/79110293/115582367-43725c00-a29f-11eb-9a49-b37a27e93ae2.png)
-### Hi there 👋
+### Hi there
+https://www.linkedin.com/in/stephany-macedo-8bb7a5206/
 
 <!--
 **stephanymacedo/stephanymacedo** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
