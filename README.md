@@ -1,3 +1,5 @@
+![Desenvolvedora Jr](https://user-images.githubusercontent.com/79110293/115567392-98a77100-a291-11eb-9cf9-af2fdbbefaec.png)
+![thumbnail_Stephany vila nova de macedo](https://user-images.githubusercontent.com/79110293/115582367-43725c00-a29f-11eb-9a49-b37a27e93ae2.png)
 ### Hi there 👋
 
 <!--
