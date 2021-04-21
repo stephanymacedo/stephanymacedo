@@ -1,7 +1,8 @@
 
-![Desenvolvedora Jr (2)](https://user-images.githubusercontent.com/79110293/115615537-79c2d200-a2c5-11eb-862d-cfaa12445bd0.png)
+![Desenvolvedora Jr (3)](https://user-images.githubusercontent.com/79110293/115617144-6a448880-a2c7-11eb-89ac-a2f0f87fc9f1.png)
 
-https://www.linkedin.com/in/stephany-macedo-8bb7a5206/
+
+https://www.linkedin.com/in/stephanymacedo/
 
 <!--
 **stephanymacedo/stephanymacedo** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
