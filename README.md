@@ -1,5 +1,6 @@
 
-![Desenvolvedora Jr (3)](https://user-images.githubusercontent.com/79110293/115617144-6a448880-a2c7-11eb-89ac-a2f0f87fc9f1.png)
+![thumbnail_Stephany vila nova de macedo (1)](https://user-images.githubusercontent.com/79110293/115622866-cced5280-a2ce-11eb-88aa-9d6b494d2f73.png)
+
 
 
 https://www.linkedin.com/in/stephanymacedo/
